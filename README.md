@@ -1,1 +1,0 @@
-# kannzi_kakitori
